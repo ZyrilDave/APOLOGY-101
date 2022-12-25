@@ -25,7 +25,7 @@ remember you DID do something wrong and YOU DID affect people. Admit to it.
 	"I apologize for [insert wrongdoing here]. I now know it [*reason why wrong doing is bad]." CORRECT. Not only did you awknowlege your action, you stated why what you did was wrong.
 		*reason should never be "it offends/upsets people".
 ```
-		* PROTIP: If you're apology answers the question "what did you do?" then it's a good start.
+		* PROTIP: If your apology answers the question "what did you do?" then it's a good start.
 ## 3. MAKE UP FOR IT (If possible)
 	you cannot do this step until you have done the 1st two.
 	For example, if you said something anti-black and have done the 1st steps, uplift some black voices, share some resources to help black people in need. even if it'll change your feed, do it! Show that you care.
@@ -34,7 +34,7 @@ remember you DID do something wrong and YOU DID affect people. Admit to it.
 
 
 ## EXTRAS:
-	- NEVER ASK FOR FORGIVENESS (never expect forgiveness. apologize anyway because you aren't looking for forgiveness remember ;P)
+	- ASK FOR FORGIVENESS (you've seen this in a apology picture, apologize and try giving some forgiveness you know:D)
 	- KEEP IT AS SERIOUS BUT GENUINE AS POSSIBLE (no joking talk. take this slash srs. don't talk like a resume tho. keep it slash gen)
 	- DON'T USE TWITLONGER. USE TWITTER THREADS (ive seen better results from threads)
 	- SPECIFY THAT THE NON-VICTIMS OF YOUR ACTIONS ARE NOT IN THE POSITION TO FORGIVE YOU 
