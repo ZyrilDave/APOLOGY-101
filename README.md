@@ -34,7 +34,7 @@ remember you DID do something wrong and YOU DID affect people. Admit to it.
 
 
 ## EXTRAS:
-	- ASK FOR FORGIVENESS (you've seen this in a apology picture, apologize and try giving some forgiveness you know:D)
+	- ASK FOR FORGIVENESS (you've seen this in a apology picture, apologize and try giving some forgiveness you know:P)
 	- KEEP IT AS SERIOUS BUT GENUINE AS POSSIBLE (no joking talk. take this slash srs. don't talk like a resume tho. keep it slash gen)
 	- DON'T USE TWITLONGER. USE TWITTER THREADS (ive seen better results from threads)
 	- SPECIFY THAT THE NON-VICTIMS OF YOUR ACTIONS ARE NOT IN THE POSITION TO FORGIVE YOU 
